@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on the project groups to enhance my skill and knowledge...
 - 📫 How to reach me through my email:sahilshrestha741@gmail.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: i love cooking and workoholic
+- ⚡ Fun fact: i love Learning.
 
 <!---
 SahilShresth741/SahilShresth741 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
